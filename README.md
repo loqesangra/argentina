@@ -1,4 +1,4 @@
-# Argentina 🇦🇷❤️ Puede Funcionar
+# Argentina 🇦🇷❤️: te vamos a arreglar
 
 Ese es el faro de toda esta iniciativa. Dejemos de discutir sobre política. Sentémonos a repensar el país que queremos.
 
